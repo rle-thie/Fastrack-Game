@@ -1,3 +1,3 @@
 # Fastrack-Game
 Un très gros projet
-c'est du lourd ma gueule
+je suis sur on eput faire tout le projet en deux semaines : "Clément Bovin"
